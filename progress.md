@@ -1,1 +1,1 @@
-On Ch 6: page 59
+On Ch 6: page 69
